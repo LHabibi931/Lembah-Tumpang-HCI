@@ -1,1 +1,0 @@
-# Lembah-Tumpang-HCI
